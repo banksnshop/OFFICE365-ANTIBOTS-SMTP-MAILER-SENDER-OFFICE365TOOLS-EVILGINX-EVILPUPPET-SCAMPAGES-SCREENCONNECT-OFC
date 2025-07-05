@@ -6,7 +6,7 @@ This repository introduces a customized Evilginx framework optimized for seamles
          
 ALL TOOLS & WHAT EVER NEEDED FOR OFFICE 365 IS AVAILABLE                                                                                                                                                         
 
-CONTACT :- MY TELEGRAM - https://t.me/banksnshop                                     
+CONTACT :- MY TELEGRAM - https://t.me/banksnshop                                          
 
                 
                                                                             
